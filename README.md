@@ -2,6 +2,5 @@
 Hey you! Just a note, but this is NOT mine. I give ALL CREDITS TO @ellieeet123 and others. I made this for my school so yeah. :) -Nova
 
 
-
-BREAKING NEWS!
-I am currently working on reviving this website back from the dead so stay tuned!
+# ITS BACKKK!!!!
+finally.... after a lot of typing and headaches, i made it come back, but BETTER!
